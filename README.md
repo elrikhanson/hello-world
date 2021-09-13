@@ -1,4 +1,4 @@
 # hello-world
 a place to exist
-We all want a new home
-Give me liberty and death
+all creatures merge together in a big pixellated blob
+the time is now for combination recreation
